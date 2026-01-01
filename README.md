@@ -10,10 +10,8 @@ https://drive.google.com/file/d/1E3-S09Mc5uXBS7KhssSPyg5IBQd1PaVM/view?usp=drive
 طراحی سایت 2 با  css, html 
 https://drive.google.com/file/d/1E6Nx4iAMMUnUZMkHb1Rp08nqLo3VNyXa/view?usp=drivesdk
 
-پروژه انیمیشن۱
-https://drive.google.com/file/d/1HzeP4Ki6GfGRaDcx30v7M20_K3Fqqmos/view?usp=drivesdk
+انیمیشن ۱ موهو دندانپزشک 
+https://drive.google.com/file/d/1ICFiyjPvf9WxG_kBxH-E4nrS40CfIkcL/view?usp=drivesdk
 
-
-
-پروژه انیمیشن ۲ با نرم افزار موهو 
+انیمیشن ۲ موهو مترسک 
 https://drive.google.com/file/d/1I7-IX2EPz22o7PdBhgLN-qAkMBoyX7BC/view?usp=drivesdk
